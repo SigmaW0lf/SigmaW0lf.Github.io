@@ -3,3 +3,6 @@
 /.iyutrjhtr ju
 
 ## ouhbouyb
+
+
+[stinky?](https://sigmaw0lf.github.io/stinky.html)
