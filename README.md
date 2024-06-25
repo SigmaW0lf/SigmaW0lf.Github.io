@@ -1,5 +1,5 @@
 # SigmaW0lf.Github.io
-![](https://i.pinimg.com/originals/20/b2/8d/20b28db51ec15e9ba3b2267a2a5cee3a.jpg)
+![](https://i.pinimg.com/originals/cd/ee/cb/cdeecb3f9d74d00338cf55c315f0f0d7.jpg)
 
 
 
