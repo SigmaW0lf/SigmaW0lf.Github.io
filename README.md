@@ -7,4 +7,4 @@
 
 [stinky?](https://sigmaw0lf.github.io/stinky.html)
 
-[frogs](http://SigmaW0lf.github.io/frogs.html)
+[frogs](https://SigmaW0lf.github.io/frogs.html)
