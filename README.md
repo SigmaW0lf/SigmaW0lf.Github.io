@@ -1,10 +1,11 @@
 # SigmaW0lf.Github.io
-![](https://i.pinimg.com/originals/79/55/fa/7955fa50959602b67d4b011d844038a3.jpg)
-big?
+![](https://i.pinimg.com/originals/20/b2/8d/20b28db51ec15e9ba3b2267a2a5cee3a.jpg)
+
+
 
 ## ouhbouyb
 
 
 [stinky?](https://sigmaw0lf.github.io/stinky.html)
 
-[frogs](https://SigmaW0lf.github.io/frogs.html)
+[click to see more feet](https://SigmaW0lf.github.io/frogs.html)
